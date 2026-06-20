@@ -1,6 +1,6 @@
 # License
 
-**Abrazo de luna**
+**Abrazo de luna, Vol. 2**
 
 Copyright (c) 2026 Abu Sayed. All Rights Reserved.
 
